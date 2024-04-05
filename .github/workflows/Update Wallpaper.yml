@@ -1,0 +1,25 @@
+name: Update Wallpaper
+
+on:
+  schedule:
+    # 定时执行，Runs at 18:00 UTC every day
+    - cron: '0 18 * * *'
+  workflow_dispatch:
+
+jobs:
+  update:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - name: Set up Python
+      uses: actions/setup-python@v2
+      with:
+        python-version: '3.x'
+    - name: Install dependencies
+      run: pip install requests
+    - name: Run Python script
+      run: python main.py
+    - name: Commit files
+      run: |
+        git add README.md
+        git commit -m "Update README.md with new wallpaper"
