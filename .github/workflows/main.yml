@@ -1,0 +1,29 @@
+name: main
+
+on:
+  schedule:
+    # Runs at 22:05 UTC every day (Beijing time 6:05 AM)
+    - cron: '5 22 * * *'
+  workflow_dispatch:
+
+jobs:
+  update:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - name: Set up Python
+      uses: actions/setup-python@v2
+      with:
+        python-version: '3.x'
+    - name: Install dependencies
+      run: pip install requests
+    - name: Run Python script
+      run: python main.py
+    - name: Commit and push if changed   # README.md 更新到仓库
+      run: |
+        git diff
+        git config --global user.email "867651822@qq.com"
+        git config --global user.name "Ohihahaha"
+        git add README.md
+        git commit -m "Github Action auto Updated"
+        git push
