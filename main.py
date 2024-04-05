@@ -8,7 +8,7 @@ class HttpUtils:
         headers = {
             'User-Agent': 'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/83.0.4103.116 Safari/537.36'
         }
-        response = requests.get(url, headers=headers)
+        response = requests.get(url, headers=headers, proxies={})  # 禁用代理
         return response.text
 
 class Wallpaper:
@@ -34,10 +34,16 @@ class Wallpaper:
         # 格式化为 MD 格式
         text = "{0} | [{1}]({2})\n".format(end_date, copyright, url)
 
+        # 读取已存在的内容
+        with open("README.md", "r", encoding="utf-8") as file:
+            existing_content = file.read()
+
+        # 将新内容插入到旧内容之前
+        new_content = "## Bing Wallpaper\n" + text + existing_content
+
         # 写入 MD 文件，使用 UTF-8 编码
         with open("README.md", "w", encoding="utf-8") as file:
-            file.write("## Bing Wallpaper\n")
-            file.write(text)
+            file.write(new_content)
 
 if __name__ == "__main__":
     Wallpaper.main()
