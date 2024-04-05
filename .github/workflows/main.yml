@@ -2,8 +2,8 @@ name: main
 
 on:
   schedule:
-    # 定时执行，Runs at 18:00 UTC every day
-    - cron: '0 18 * * *'
+    # Runs at 22:05 UTC every day (Beijing time 6:05 AM)
+    - cron: '5 22 * * *'
   workflow_dispatch:
 
 jobs:
