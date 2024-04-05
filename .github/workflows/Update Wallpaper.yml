@@ -21,5 +21,12 @@ jobs:
       run: python main.py
     - name: Commit files
       run: |
+        git config --local user.email "867651822@qq.com"
+        git config --local user.name "Ohihahaha"
         git add README.md
         git commit -m "Update README.md with new wallpaper"
+    - name: Push changes
+      uses: ad-m/github-push-action@master
+      with:
+        github_token: ${{ secrets.MY_GIT_TOKEN }}
+        branch: main
