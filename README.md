@@ -1,3 +1,5 @@
+## 20240408 | [Look, I'm a branch manager!](https://cn.bing.com)
+![](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240407 | [A royal view](https://cn.bing.com)
 ![](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240406 | [A dive into the blue](https://cn.bing.com)
