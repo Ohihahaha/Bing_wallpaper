@@ -20,11 +20,11 @@ class Wallpaper:
         image_info = data["images"][0]
 
         # 提取图片信息
-        url = Wallpaper.BING_URL + image_info["url"]
+        image_url = Wallpaper.BING_URL + image_info["url"]
         description = image_info["title"]
 
-        # 构造 Markdown 格式的文本
-        text = "## {0} | [{1}](https://cn.bing.com)\n![]({2})\n".format(image_info["enddate"], description, url)
+        # 构造 Markdown 格式的文本，将链接替换为图片链接
+        text = "## {0} | [{1}]({2})\n![]({3})\n".format(image_info["enddate"], description, Wallpaper.BING_URL, image_url)
 
         # 读取已存在的内容
         with open("README.md", "r", encoding="utf-8") as file:
@@ -39,3 +39,4 @@ class Wallpaper:
 
 if __name__ == "__main__":
     Wallpaper.main()
+
