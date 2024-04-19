@@ -1,3 +1,5 @@
+## 20240420 | [History has come full circle](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240419 | [Wall of fame](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240418 | [Have I been sleeping too long?](https://cn.bing.com/th?id=OHR.SpringCub_EN-US3818124104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
