@@ -1,3 +1,5 @@
+## 20240427 | [For tree's a jolly good fellow](https://cn.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240426 | [It's ice to meet you all here!](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240425 | [Hey, how's it growing today?](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
