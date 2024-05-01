@@ -1,3 +1,5 @@
+## 20240502 | [May Day is Lei Day in Hawaii Nei](https://cn.bing.com/th?id=OHR.HawaiianLei_EN-US6290126556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.HawaiianLei_EN-US6290126556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240430 | [In perfect shape](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240429 | [Let's park here](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
