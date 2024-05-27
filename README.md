@@ -1,3 +1,5 @@
+## 20240528 | [Memorial Day](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240527 | [The hills are alive](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240526 | [Guardians of the dunes](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
