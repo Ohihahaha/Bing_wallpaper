@@ -1,3 +1,5 @@
+## 20240607 | [D-Day: 80 years on](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240606 | [World Environment Day](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240605 | [Birds of a feather](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
