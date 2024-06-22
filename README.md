@@ -1,3 +1,5 @@
+## 20240623 | [Getting lost in the mist](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240622 | [Spot-on connection](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240621 | [Sunrise on the solstice](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
