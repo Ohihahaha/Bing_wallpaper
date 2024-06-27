@@ -1,3 +1,5 @@
+## 20240628 | [Dome sweet dome](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240627 | [Stripe-tacular!](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240626 | [Flowing through Valley of Fire](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
