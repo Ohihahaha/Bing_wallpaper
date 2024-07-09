@@ -1,3 +1,5 @@
+## 20240710 | [Towering Talampaya](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240709 | [Berry beautiful](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240708 | [Rice and shine](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
