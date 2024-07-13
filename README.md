@@ -1,3 +1,5 @@
+## 20240714 | [Türkiye's stony spires](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240713 | [Come Rainier or shine](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240712 | [You are one in 8.1 billion](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
