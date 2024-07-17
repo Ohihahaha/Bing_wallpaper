@@ -1,3 +1,5 @@
+## 20240718 | [Towering with history](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240717 | [Digging into the past](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240716 | [Seas the day](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
