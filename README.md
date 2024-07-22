@@ -1,3 +1,5 @@
+## 20240723 | [Just hanging out](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240722 | [Smooth sailing](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240721 | [To the moon and back](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
