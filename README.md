@@ -1,3 +1,5 @@
+## 20240724 | [Echoes of history](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240723 | [Just hanging out](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240722 | [Smooth sailing](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
