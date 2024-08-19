@@ -1,3 +1,5 @@
+## 20240820 | [An old dream takes flight](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240819 | [Pier today ...](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240818 | [Light the way](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
