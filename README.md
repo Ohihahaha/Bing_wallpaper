@@ -1,3 +1,5 @@
+## 20240823 | [The morning glow](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240822 | [Waiting to 'Galápa-go'](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240821 | [A grand view](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
