@@ -1,3 +1,5 @@
+## 20240828 | [Life's good in the swamp!](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240827 | [Idyllic island escape](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240826 | [Preserving paradise](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
