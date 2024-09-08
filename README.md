@@ -1,3 +1,5 @@
+## 20240909 | [A global chapter](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240908 | [Humming along](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240907 | ['Wood' you believe this view?](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
