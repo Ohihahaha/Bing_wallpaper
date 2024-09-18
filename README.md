@@ -1,3 +1,5 @@
+## 20240919 | [Castle in the clouds](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240918 | [Lanterns and mooncakes](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240917 | [Wallabies on the watch](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
