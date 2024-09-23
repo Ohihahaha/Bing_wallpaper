@@ -1,3 +1,5 @@
+## 20240924 | [Otter-ly amazing](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240923 | [Fall into reflection](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20240922 | [Prost! Oktoberfest begins](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
