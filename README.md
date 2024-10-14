@@ -1,3 +1,5 @@
+## 20241015 | [Honoring Indigenous Peoples](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241014 | [The splendor of Seville](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241013 | [It's time to wing it!](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
