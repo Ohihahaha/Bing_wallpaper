@@ -1,3 +1,5 @@
+## 20241020 | [Uncovering the past](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241019 | [Falling for Central Park](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241018 | [Astronauts, grab your skis!](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
