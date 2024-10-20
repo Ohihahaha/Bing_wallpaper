@@ -1,3 +1,5 @@
+## 20241021 | [Hanging in there](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241020 | [Uncovering the past](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241019 | [Falling for Central Park](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
