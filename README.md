@@ -1,3 +1,5 @@
+## 20241030 | [Hoots and haunts](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241029 | [It's carving time](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241028 | [A mother's warmth in the cold](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
