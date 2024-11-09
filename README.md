@@ -1,3 +1,5 @@
+## 20241110 | [Cosmic views over earthly hues](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241109 | [From the land of fire and ice](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241108 | [Wolves in the wild](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
