@@ -1,3 +1,5 @@
+## 20241120 | [An arch that rocks](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241119 | [Guiding the way since 1860](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241118 | [The hart of the Highlands](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
