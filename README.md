@@ -1,3 +1,5 @@
+## 20241122 | [Sunrise on the savanna](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241121 | [United for World Children’s Day](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241120 | [An arch that rocks](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
