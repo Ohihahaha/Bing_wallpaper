@@ -1,3 +1,5 @@
+## 20241209 | [The comeback of Notre-Dame](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241208 | [Remembering Pearl Harbor](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241207 | [Happy birthday, Finland!](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
