@@ -1,3 +1,5 @@
+## 20241217 | [Twinkling streets and icy peaks](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241216 | [A lake of tears](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241215 | ['Hoo' said that?](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
