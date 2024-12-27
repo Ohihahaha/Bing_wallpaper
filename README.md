@@ -1,3 +1,5 @@
+## 20241228 | [Icy reflections and snow-dusted peaks](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241227 | [The holidays continue](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20241226 | [Merry Christmas!](https://cn.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
