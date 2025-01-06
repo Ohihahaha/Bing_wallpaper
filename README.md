@@ -1,3 +1,5 @@
+## 20250107 | [Divine depths](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250106 | [Head-turner in the treetops](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250105 | [A borderline paradise](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
