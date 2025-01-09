@@ -1,3 +1,5 @@
+## 20250110 | [Honoring Jimmy Carter](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250109 | [Step up your game](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250108 | [Rocks and rollers](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
