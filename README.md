@@ -1,3 +1,5 @@
+## 20250116 | [Where the past is always present](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250115 | [Calmness overload](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250114 | ['Welsh' you a Happy Hen Galan!](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9397534673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
