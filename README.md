@@ -1,3 +1,5 @@
+## 20250119 | [1,001 New Mexican dunes](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250118 | [Pouch perfect](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250117 | [A monumental milestone](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
