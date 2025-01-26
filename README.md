@@ -1,3 +1,5 @@
+## 20250127 | [Aging gracefully](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250126 | [Golden hour in Porto](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250125 | [Bubbling with power](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
