@@ -1,3 +1,5 @@
+## 20250208 | [Stuck in a blue moment](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250207 | [Reflections of a nation's legacy](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250206 | [Baa, baa, black sheep? No.](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
