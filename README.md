@@ -1,3 +1,5 @@
+## 20250226 | [Hoodoo you do?](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250225 | [Inked and undercover](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250224 | [Wind of Fuji, my souvenir from Edo](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
