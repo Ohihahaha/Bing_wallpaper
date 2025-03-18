@@ -1,3 +1,5 @@
+## 20250319 | [A vortex state of mind](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250318 | [St. Patrick's enchantment](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250317 | [Back to black ... and white](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
