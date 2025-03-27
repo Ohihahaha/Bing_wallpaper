@@ -1,3 +1,5 @@
+## 20250328 | [A standing ovation for theaters](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250327 | [Life below the surface](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250326 | [In a hole, there was a story](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
