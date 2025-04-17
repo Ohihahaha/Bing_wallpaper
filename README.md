@@ -1,3 +1,5 @@
+## 20250418 | [Double the drama](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250417 | [A passage through time](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250416 | [See Art, Do Art, Be Art](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
