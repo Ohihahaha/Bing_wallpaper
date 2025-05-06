@@ -1,3 +1,5 @@
+## 20250507 | [Not your average desert trip](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250506 | [Viva Mexico!](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250505 | [Welcome to planet Naboo!](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
