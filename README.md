@@ -1,3 +1,5 @@
+## 20250515 | [Ore and more](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250514 | [66 and still gorgeous](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250513 | [Waves of purple](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
