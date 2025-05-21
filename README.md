@@ -1,3 +1,5 @@
+## 20250522 | [Teatime](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250521 | [Small wings, big job](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250520 | [Twists and turns of Mount Hamilton](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
