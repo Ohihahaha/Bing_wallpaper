@@ -1,3 +1,5 @@
+## 20250605 | [Crisp blues, sharp views](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250604 | [Break for joy](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250603 | [Flower power](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
