@@ -1,3 +1,5 @@
+## 20250613 | [Stars, stone, and solitude](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250612 | [A tidal ballet](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250611 | [A river of grass](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
