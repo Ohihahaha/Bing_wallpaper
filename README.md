@@ -1,3 +1,5 @@
+## 20250625 | [Nature took its time](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250624 | [From ruins to resilience](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250623 | [Jungle all the way](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
