@@ -1,3 +1,5 @@
+## 20250703 | [In the bubble-tip zone](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250702 | [Canada turns 158](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250701 | [Rock-solid defense](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
