@@ -1,3 +1,5 @@
+## 20250709 | [Beauty with an edge](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250708 | [Flash, splash, then snack](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250707 | [Sands of time](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
