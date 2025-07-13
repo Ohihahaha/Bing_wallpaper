@@ -1,3 +1,5 @@
+## 20250714 | [Rockin' those layers](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250713 | [Following mom's lead](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250712 | [Counting us all in](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
