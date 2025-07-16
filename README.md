@@ -1,3 +1,5 @@
+## 20250717 | [Illuminated by Isis](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250716 | [Timeless glow](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250715 | [Chasing waves](https://cn.bing.com/th?id=OHR.YoungShark_EN-US4689572794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
