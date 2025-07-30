@@ -1,3 +1,5 @@
+## 20250731 | [Friendship without borders](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250730 | [The jungle queen](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250729 | [A steppe ahead](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
