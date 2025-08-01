@@ -1,3 +1,5 @@
+## 20250802 | [Expect the unexpected](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250801 | [Madagascar native](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250731 | [Friendship without borders](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
