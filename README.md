@@ -1,3 +1,5 @@
+## 20250805 | [Whooo's home?](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250804 | [Hello yellow!](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250803 | [Age-old storyboard](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
