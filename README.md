@@ -1,3 +1,5 @@
+## 20250819 | [Stream a little dream](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250818 | [One tall way to spot the sea](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250817 | [Bee the change](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
