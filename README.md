@@ -1,3 +1,5 @@
+## 20250824 | [Gothic majesty](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250823 | [Nature's green quilt](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250822 | [Perched and poised](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
