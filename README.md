@@ -1,3 +1,5 @@
+## 20250829 | [This egret has no regrets](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250828 | [A lake above the ocean](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250827 | [A 'trulli' remarkable town](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
