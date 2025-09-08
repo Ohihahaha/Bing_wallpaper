@@ -1,3 +1,5 @@
+## 20250909 | [Booked for the day](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250908 | [Pastel dreams and still waters](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250907 | [A hum-dinger of a day](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
