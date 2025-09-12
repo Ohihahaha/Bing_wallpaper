@@ -1,3 +1,5 @@
+## 20250913 | [Swim wild, swim free](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250912 | [In unity and remembrance](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250911 | ['Hay' there!](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
