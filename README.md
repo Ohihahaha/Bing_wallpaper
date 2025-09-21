@@ -1,3 +1,5 @@
+## 20250922 | [Otterly cool](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250921 | [A tale of brews and views](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250920 | [A thousand reasons to visit](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
