@@ -1,3 +1,5 @@
+## 20250925 | [The lonely giant](https://cn.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250924 | [Beak-side story](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20250923 | [Midway to winter](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
