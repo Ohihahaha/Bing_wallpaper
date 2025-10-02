@@ -1,3 +1,5 @@
+## 20251003 | [Wild by law](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251002 | [Echoes from the Clark Range](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251001 | [Clinging to what matters](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
