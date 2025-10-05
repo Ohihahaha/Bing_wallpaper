@@ -1,3 +1,5 @@
+## 20251006 | [Celebrating our teachers](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251005 | [Mission: Possible](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251004 | [Mist-bound reveries](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
