@@ -1,3 +1,5 @@
+## 20251016 | [The spore the merrier](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251015 | [Dreams painted in blue and white](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251014 | [Flames of the past](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
