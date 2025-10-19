@@ -1,3 +1,5 @@
+## 20251020 | [Sweet on science](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251019 | [The hill that remembers](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251018 | [Falling for Michigan](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
