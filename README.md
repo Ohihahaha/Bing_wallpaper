@@ -1,3 +1,5 @@
+## 20251025 | [From 'Grey Ghost' to ghost stories](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251024 | [Snow much love](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251023 | [Set in stone](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
