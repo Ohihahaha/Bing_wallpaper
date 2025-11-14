@@ -1,3 +1,5 @@
+## 20251115 | [A slow reminder for a fast world](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251114 | [Quivering under starlight](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251113 | [All roads lead to Rome](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
