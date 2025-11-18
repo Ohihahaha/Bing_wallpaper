@@ -1,3 +1,5 @@
+## 20251119 | [Fall's feathered headliner](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251118 | [The trails' call](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251117 | [Passages with a past](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
