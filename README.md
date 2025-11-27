@@ -1,3 +1,5 @@
+## 20251128 | [The echoes of Plymouth](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251127 | ['Leaf' it to history](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251126 | [Love, luck, and loose change](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
