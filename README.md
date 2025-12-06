@@ -1,3 +1,5 @@
+## 20251207 | [Florida's living wetlands](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251206 | [The city that mapped the stars](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251205 | [Sprint for survival](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
