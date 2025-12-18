@@ -1,3 +1,5 @@
+## 20251219 | [Layers of time in Utah](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251218 | [Fur, frost, and feast](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251217 | [Tiny hats, big spirits](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
