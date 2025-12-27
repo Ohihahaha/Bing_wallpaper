@@ -1,3 +1,5 @@
+## 20251228 | [Shards of winter](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251227 | [Unboxed traditions](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251226 | [Miniature worlds, infinite wonder](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
