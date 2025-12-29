@@ -1,3 +1,5 @@
+## 20251230 | [The church that outlived a city](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251229 | [What remains wild](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20251228 | [Shards of winter](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
