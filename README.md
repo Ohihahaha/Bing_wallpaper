@@ -1,3 +1,5 @@
+## 20260106 | [Herd on high alert](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260105 | [A royal view](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260104 | [The steps before the saga](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
