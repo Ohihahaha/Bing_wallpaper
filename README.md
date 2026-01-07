@@ -1,3 +1,5 @@
+## 20260108 | [Rock legends](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260107 | [Chillin' in Nuuk](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260106 | [Herd on high alert](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
