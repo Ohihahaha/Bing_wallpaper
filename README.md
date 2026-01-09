@@ -1,3 +1,5 @@
+## 20260110 | [Where time grows tall](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260109 | [Rust meets rush](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260108 | [Rock legends](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
