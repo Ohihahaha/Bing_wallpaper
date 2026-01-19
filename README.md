@@ -1,3 +1,5 @@
+## 20260120 | [Standing where hope rose](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260119 | [A desert in disguise](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260118 | [The dome of Piazza del Plebiscito](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
