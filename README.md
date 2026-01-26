@@ -1,3 +1,5 @@
+## 20260127 | [Bavaria’s gem](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260126 | [Tradition burns bright](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260125 | [A Swiss escape](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
