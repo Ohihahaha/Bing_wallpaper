@@ -1,3 +1,5 @@
+## 20260204 | [Tahoe serving views](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260202 | [Celebrate. Reflect. Rise.](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260201 | [Love at first stripe](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
