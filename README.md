@@ -1,3 +1,5 @@
+## 20260205 | [The face of change](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260204 | [Tahoe serving views](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260202 | [Celebrate. Reflect. Rise.](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
