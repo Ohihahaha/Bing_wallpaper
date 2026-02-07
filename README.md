@@ -1,3 +1,5 @@
+## 20260208 | [Salt, sky, and the stillness between](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260207 | [Ra Gusela—peak of the Olympic season](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260206 | [Stuck in a grid](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
