@@ -1,3 +1,5 @@
+## 20260219 | [Born to stay wild](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260218 | [Fifteen days of light](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260217 | [Legacies in view](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
