@@ -1,3 +1,5 @@
+## 20260227 | [One grand view](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260226 | [Ice, lit from within](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260225 | [The pulse beneath the pond](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
