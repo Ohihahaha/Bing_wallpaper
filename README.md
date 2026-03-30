@@ -1,3 +1,5 @@
+## 20260331 | [Elegance in motion](https://cn.bing.com/th?id=OHR.IndiaCranes_EN-US6414900321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.IndiaCranes_EN-US6414900321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260330 | [Serenity by the sea](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260329 | [The untamed spirit](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
