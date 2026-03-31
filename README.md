@@ -1,3 +1,5 @@
+## 20260401 | [Underground paradise](https://cn.bing.com/th?id=OHR.ParadiseCave_EN-US6470755729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ParadiseCave_EN-US6470755729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260331 | [Elegance in motion](https://cn.bing.com/th?id=OHR.IndiaCranes_EN-US6414900321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.IndiaCranes_EN-US6414900321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260330 | [Serenity by the sea](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
