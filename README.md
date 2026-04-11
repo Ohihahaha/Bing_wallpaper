@@ -1,3 +1,5 @@
+## 20260412 | [Volcanic veneer](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260411 | [Plotting paws](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260410 | [Veil of light](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
