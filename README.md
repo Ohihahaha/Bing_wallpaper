@@ -1,3 +1,5 @@
+## 20260413 | [The first step off Earth](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260412 | [Volcanic veneer](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260411 | [Plotting paws](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
