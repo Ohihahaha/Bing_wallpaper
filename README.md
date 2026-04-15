@@ -1,3 +1,5 @@
+## 20260416 | [Stepping inside the living canvas](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260415 | [Reefside roommates](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260414 | [After the lights go down](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
