@@ -1,3 +1,5 @@
+## 20260503 | [The magic of Jasper](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260502 | [A pond of stories](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260501 | [Tulips run the show](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
