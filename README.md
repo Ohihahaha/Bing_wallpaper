@@ -1,3 +1,5 @@
+## 20260506 | [Where history took root](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260505 | [Sci‑Fi, Earth‑made](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260504 | [Savanna afterglow](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
