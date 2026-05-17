@@ -1,3 +1,5 @@
+## 20260518 | [Quiet peak, loud view](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260517 | [Rock bottom? Not here](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260516 | [Whale you save me?](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
