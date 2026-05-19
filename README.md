@@ -1,3 +1,5 @@
+## 20260520 | [The edge of Mallorca](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260519 | [Hope in the hall](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260518 | [Quiet peak, loud view](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
