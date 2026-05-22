@@ -1,3 +1,5 @@
+## 20260523 | [The shape of life at sea](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260522 | [Brewing a legacy](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260521 | [Where the buzz begins](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
