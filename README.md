@@ -1,3 +1,5 @@
+## 20260605 | [Fancy feathers](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260604 | [Where the road stops, the ride begins](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260603 | [Between the blues](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
