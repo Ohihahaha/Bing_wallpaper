@@ -1,3 +1,5 @@
+## 20260610 | [Taste the sunset](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260609 | [Drift with the current](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260608 | [Plant your kingdom](https://cn.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
