@@ -1,3 +1,5 @@
+## 20260617 | [Nature's reef keepers](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260616 | [Aged to scenic perfection](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260615 | [History flies high](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
