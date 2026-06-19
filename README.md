@@ -1,3 +1,5 @@
+## 20260620 | [A story rising in bronze](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260619 | [A rock-solid marvel](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260618 | [Twist your way up](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
