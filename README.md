@@ -1,3 +1,5 @@
+## 20260625 | [Pollen meets wings](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260624 | [Signature on the horizon](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260623 | [A lush kingdom](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
