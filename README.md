@@ -1,3 +1,5 @@
+## 20260703 | [Inside Esna's sacred universe](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260702 | [Canada, carved by the Atlantic](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260701 | [Where shadows stretch tall](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
