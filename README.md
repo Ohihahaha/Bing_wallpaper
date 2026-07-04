@@ -1,3 +1,5 @@
+## 20260705 | [The story continues](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260704 | [The poetry of vanishing light](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260703 | [Inside Esna's sacred universe](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
