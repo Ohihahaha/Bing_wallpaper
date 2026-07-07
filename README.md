@@ -1,3 +1,5 @@
+## 20260708 | [Color, craft, and canopy life](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260707 | [A city written in centuries](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260706 | [Sea of purple](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
