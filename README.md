@@ -1,3 +1,5 @@
+## 20260718 | [A Greek escape](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260717 | [A waterfront chameleon](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260716 | [The reward after the climb](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
