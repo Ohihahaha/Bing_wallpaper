@@ -1,3 +1,5 @@
+## 20260720 | [Wings at rest](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260719 | [Going full circle](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260718 | [A Greek escape](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
