@@ -1,3 +1,5 @@
+## 20260806 | [Gates of a hidden kingdom](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260805 | [Hoot hoot hooray!](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260804 | [Bright boats, timeless traditions](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
