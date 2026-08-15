@@ -1,3 +1,5 @@
+## 20260816 | [The great balancing act](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260815 | [Built for paws, not people](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260814 | [Make a wish](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
