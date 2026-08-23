@@ -1,3 +1,5 @@
+## 20260824 | [Meet Katmai's fishing giants](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260823 | [Sky tinted wings](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260822 | [The climb is calling](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
