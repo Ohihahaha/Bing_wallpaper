@@ -1,3 +1,5 @@
+## 20260903 | [Painted along the shore](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260902 | [A world beneath your feet](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260901 | [A master class in pattern](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
