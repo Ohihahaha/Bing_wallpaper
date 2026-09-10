@@ -1,3 +1,5 @@
+## 20260910 | [Life on India's west coast](https://cn.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260909 | [Fields of gold](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260908 | [Labor's legacy](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
