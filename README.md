@@ -1,3 +1,5 @@
+## 20260924 | [Beyond the last page](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260923 | [The golden season](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20260922 | [Life between fur and sea](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
