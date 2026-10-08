@@ -1,3 +1,5 @@
+## 20261008 | [Puzzled? Follow the trail](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261007 | [Earth's story in stripes](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261006 | [Taking the plunge, one lesson at a time](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
