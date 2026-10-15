@@ -1,3 +1,5 @@
+## 20261015 | [Spirals through time](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261014 | [A symphony in blue and green](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261013 | [A landscape of living history](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
