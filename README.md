@@ -1,3 +1,5 @@
+## 20261025 | [Bookishly extravagant](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261024 | [Partners in the wild](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261023 | [Still waters, vivid colors](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
