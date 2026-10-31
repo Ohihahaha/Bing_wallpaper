@@ -1,3 +1,5 @@
+## 20261031 | [Time to fly high](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261030 | [Where mist meets millennia](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261029 | [Where history stands watch](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
