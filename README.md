@@ -1,3 +1,5 @@
+## 20261108 | [The giant that came back](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261107 | [A green tunnel through Maui](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261106 | [One step closer to the summit](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
