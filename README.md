@@ -1,3 +1,5 @@
+## 20261122 | [Terracotta dreams](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261121 | [Feasting in the fjords](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261120 | [Where ideas take shape](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
