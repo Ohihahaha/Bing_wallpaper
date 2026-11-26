@@ -1,3 +1,5 @@
+## 20261126 | [A southwestern snowfall](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261125 | [Autumnal camouflage](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261124 | [Geometry in nature](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
