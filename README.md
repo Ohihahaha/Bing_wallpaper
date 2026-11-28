@@ -1,3 +1,5 @@
+## 20261128 | [Ribbons of gray and gold](https://cn.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261127 | [Turkey twins](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ![](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 ## 20261126 | [A southwestern snowfall](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
